@@ -21,4 +21,4 @@ Korean students are famous for their large amount of studying. There is even a s
 
 # Limitation of working in Korea
 
-There are few kinds of races in Korea, so there is a limit to having many experiences. I thought it would be disadvantage to build my career. Also, I wanted to work at a big company such as Google. Google is my dream company to work at.
+There are few kinds of people in Korea, so there is a limit to having many experiences. I thought it would be a disadvantage in building my career. Also, I want to work at a big company such as Google, which is my dream company.
